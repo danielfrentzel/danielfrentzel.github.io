@@ -8,7 +8,7 @@ Daniel is a graduate for Western State Colorado University with a Bachelor of Sc
 
 ### More Information
 
-Daniel is an intuitive and adaptive employee with strong integrity and a proven analytical mindset. He takes pride in doing his work well, helping himself and the company to succeed. When not working, Daniel loves being outside and doing activities such as biking, skiing, fishing and climbing. Please feel free to email him for more information, his resume, or letters of reconmendation. Thank you for visiting!
+Daniel is an intuitive and adaptive employee with strong integrity and a proven analytical mindset. He takes pride in doing his work well, helping himself and the company to succeed. When not working, Daniel loves being outside and doing activities such as biking, skiing, fishing and climbing. Please feel free to email him for more information, a resume, or letters of reconmendation. Thank you for visiting!
 
 ### Contact me
 
