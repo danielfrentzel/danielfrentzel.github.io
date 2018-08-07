@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-Daniel is a graduate for Western State Colorado University with a Bachelor of Science in Computer Science, Bachelor of Science in Mathematics and a minor in Physics. He completed an internship with Rocket Software during the summer of 2017, but decided to decline their job offer. Daniel is currently seeking an entry level Software Development postition. 
+Daniel is a graduate for Western State Colorado University with a Bachelor of Science in Computer Science, Bachelor of Science in Mathematics and a minor in Physics. He completed an internship with Rocket Software during the summer of 2017, but decided to decline a full-time position with them. Daniel is currently seeking an entry level Software Development postition. 
 
 ### More Information
 
